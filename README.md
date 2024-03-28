@@ -13,7 +13,7 @@ Driven by a passion for storytelling, Bipul has ventured into the realm of liter
 
 ## Personal Insight
 
-Bipul Sheikh hails from the serene town of Saindaha, Palashbari, in Gaibandha, Bangladesh.  He loss of his first wife, Kohinur Parvin, during childbirth. Her Daughter name of Tasfia Jannat. 
+Bipul Sheikh hails from the serene village of Saindaha, Palashbari, in Gaibandha, Bangladesh.  He loss of his first wife, Kohinur Parvin, during childbirth. Her Daughter name of Tasfia Jannat. 
 
 In a subsequent chapter of his life, Bipul got his new marriage to Razia Sultana.
 
